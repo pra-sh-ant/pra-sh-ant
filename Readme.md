@@ -9,4 +9,6 @@
 ### 🚀 I enjoy solving challenging problems and building cool projects.
 
 
-### 💬 Feel free to reach out to me at pk58762@gmail.com to chat about code, tech, or anything else!
+### 💬 Feel free to reach out to me at pk58762@gmail.com or Linkedin to chat about code, tech, or anything else!
+
+[LinkedIn](https://www.linkedin.com/in/pksingh11/)
